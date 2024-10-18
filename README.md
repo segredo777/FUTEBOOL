@@ -1,2 +1,2 @@
 # Futebol
-https://segredo777.github.io/Tropa-do-7/
+https://segredo777.github.io/FUTEBOOL/
